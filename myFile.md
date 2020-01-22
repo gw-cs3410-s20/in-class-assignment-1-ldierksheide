@@ -1,2 +1,2 @@
-Linnea Dierksheide \n
+Linnea Dierksheide
 The Princess Bride
